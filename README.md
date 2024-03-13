@@ -8,8 +8,8 @@
 
 ##### ***★ Please check out my carrd and pronouns cc for more info about me :3***
 
-###### Tiktok ; marispiano
+###### *Tiktok ; marispiano*
 
-###### Discord ; nortluca
+###### *Discord ; nortluca*
 
-###### Twitter ; noortluca
+###### *Twitter ; noortluca*
